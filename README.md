@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @samarth37avhad
 - 👀 I’m interested in Learning and Explore New Technologies.
-- 🌱 I’m currently learning Web Development ,java ,C ,js,languages.
+- 🌱 I’m Profficient in Web Development ,java ,C ,js,languages.
 - 💞️ I’m looking to collaborate to work jointly with others or together especially in an intellectual endeavor. 
 - 📫 How to reach me By ❤️
 
